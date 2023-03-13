@@ -5,4 +5,6 @@ Exercise Today:
 
 Enjoyed being outside.
 
+What about weight lifting?
+
 
